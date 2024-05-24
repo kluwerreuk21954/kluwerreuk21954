@@ -1,1 +1,1 @@
-The 1999 UEFA Champions League final between Manchester United and Bayern Munich saw United score two goals in injury time to win the treble.
+Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
