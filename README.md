@@ -1,1 +1,1 @@
-Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
+Real Madrid is the most successful club in UEFA Champions League history, winning the tournament 13 times as of 2022.
