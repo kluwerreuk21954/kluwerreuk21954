@@ -1,1 +1,1 @@
-Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
+Soccer is known as "football" in most countries outside of the United States and Canada, reflecting its emphasis on using feet to control the ball.
