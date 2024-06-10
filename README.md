@@ -1,1 +1,1 @@
-The FIFA Women's World Cup has grown in popularity and prestige, with the United States winning the tournament four times as of 2019.
+Diego Maradona's "Hand of God" goal and "Goal of the Century" against England in the 1986 World Cup quarter-final are iconic moments in soccer history.
