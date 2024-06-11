@@ -1,1 +1,1 @@
-Diego Maradona's "Hand of God" goal and "Goal of the Century" against England in the 1986 World Cup quarter-final are iconic moments in soccer history.
+The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
