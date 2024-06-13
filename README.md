@@ -1,1 +1,1 @@
-The introduction of Video Assistant Referee (VAR) technology has impacted the game by allowing officials to review key decisions, reducing controversial calls.
+Pelé remains the youngest player to ever win a FIFA World Cup, achieving the feat at the age of 17 years and 249 days in 1958.
