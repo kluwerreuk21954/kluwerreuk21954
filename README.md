@@ -1,1 +1,1 @@
-Soccer is often used as a tool for social change and development, with organizations like streetfootballworld harnessing its potential to address issues like poverty and inequality.
+The popularity and visibility of women's soccer have grown significantly in recent years, with increased media coverage and investment from governing bodies and sponsors.
