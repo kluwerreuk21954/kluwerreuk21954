@@ -1,1 +1,1 @@
-The Maracanã Stadium in Rio de Janeiro, Brazil, hosted two FIFA World Cup finals and was the venue for the opening and closing ceremonies of the 2016 Rio Olympics.
+Soccer is often used as a tool for social change and development, with organizations like streetfootballworld harnessing its potential to address issues like poverty and inequality.
