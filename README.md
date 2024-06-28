@@ -1,1 +1,1 @@
-Real Madrid is the most successful club in UEFA Champions League history, winning the tournament 13 times as of 2022.
+The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
