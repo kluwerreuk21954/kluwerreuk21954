@@ -1,1 +1,1 @@
-The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
+The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
