@@ -1,1 +1,1 @@
-Pelé, widely regarded as one of the greatest soccer players of all time, won three World Cups with Brazil in 1958, 1962, and 1970.
+The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
