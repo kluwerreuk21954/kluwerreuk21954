@@ -1,1 +1,1 @@
-The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
+Cristiano Ronaldo is the all-time leading goal scorer in UEFA Champions League history, with over 130 goals to his name.
