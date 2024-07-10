@@ -1,1 +1,1 @@
-Cristiano Ronaldo is the all-time leading goal scorer in UEFA Champions League history, with over 130 goals to his name.
+The Santiago Bernabéu Stadium, home of Real Madrid, is one of the most iconic soccer venues in the world and has hosted numerous UEFA Champions League finals.
