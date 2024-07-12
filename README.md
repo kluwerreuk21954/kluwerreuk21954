@@ -1,1 +1,1 @@
-The Santiago Bernabéu Stadium, home of Real Madrid, is one of the most iconic soccer venues in the world and has hosted numerous UEFA Champions League finals.
+The FIFA Women's World Cup has grown in popularity and prestige, with the United States winning the tournament four times as of 2019.
