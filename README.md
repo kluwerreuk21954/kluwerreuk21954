@@ -1,1 +1,1 @@
-Diego Maradona's "Hand of God" goal and "Goal of the Century" against England in the 1986 World Cup quarter-final are iconic moments in soccer history.
+The Santiago Bernabéu Stadium, home of Real Madrid, is one of the most iconic soccer venues in the world and has hosted numerous UEFA Champions League finals.
